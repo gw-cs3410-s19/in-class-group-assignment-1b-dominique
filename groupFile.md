@@ -1,3 +1,3 @@
 ## a. Servants of Dominique  
 
-# b. Lily Schwarz
+# b. Lily Schwarz, Selin Onal
